@@ -34,8 +34,8 @@ activities to help us create safe and positive experiences for everyone.
 
 ## Our contact information
 
-If you have any questions don't hesitate to get in touch with board members or activities staff. An activity staff is available both during, before and after the activity. You can reach activity staff by the means they have communicated for the activity. You can reach board members by [email](mailto:info@rubybelgium.be) or by
-[twitter](https://twitter.com/brug_be).
+If you have any questions don't hesitate to get in touch with board members or activities staff. An activity staff is available both during, before and after the activity. You can reach activity staff by the means they have communicated for the activity. You can reach board members by [email](mailto:safe@rubybelgium.be) or by
+[twitter](https://twitter.com/rubybelgium).
 
 As reminder, the emergency number in Belgium is the 112.
 
